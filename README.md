@@ -1,1 +1,1 @@
-# Mick 10004
+# We are not afiliated with xat.com © 2026 All Rights Reserved MICK
